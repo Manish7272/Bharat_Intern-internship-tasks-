@@ -1,6 +1,6 @@
 # Bharat_Intern-internship-tasks-
 
-[Manish Gupta Wellcome letter.pdf](https://github.com/Manish7272/Bharat_Intern-internship-tasks-/files/13324471/Manish.Gupta.Wellcome.letter.pdf)
+![Manish Gupta](https://github.com/Manish7272/Bharat_Intern-internship-tasks-/assets/71213166/98c499be-bb78-42af-ac41-02a25b7c7d1f)
 
 <hr style=color:cyan>
 <hr style=color:cyan>
