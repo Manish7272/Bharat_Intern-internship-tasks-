@@ -1,4 +1,4 @@
-# Bharat_Intern-internship-tasks-
+ # <center> -------------------- Bharat_Intern --------------------
 
 ![Manish Gupta](https://github.com/Manish7272/Bharat_Intern-internship-tasks-/assets/71213166/98c499be-bb78-42af-ac41-02a25b7c7d1f)
 
